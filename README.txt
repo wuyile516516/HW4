@@ -1,2 +1,0 @@
-Yile Wu
-Miami Heat
